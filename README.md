@@ -1,1 +1,1 @@
-My nameis Pratik Choubey andia 
+My nameis Pratik Choubey 
